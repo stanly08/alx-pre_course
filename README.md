@@ -1,1 +1,1 @@
-My first readme
+stanly n bazuu na atawaramba
