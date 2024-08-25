@@ -1,1 +1,1 @@
-stanly n bazuu na atawaramba
+alx pre course 
